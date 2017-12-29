@@ -44,5 +44,3 @@ This Privacy Policy does not create rights enforceable by third parties or requi
 Changes to this Privacy Policy
 We will occasionally update this Privacy Policy to reflect changes in the law, our data collection and use practices, the features of our Service, or advances in technology.
  
-How to contact us
-If you have any questions about this Privacy Policy, please contact us by email or postal mail as follows:  Team@baedating.com

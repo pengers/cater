@@ -1,4 +1,3 @@
-                                                 PRIVACY POLICY
  
 Cater, (“Cater,” “we,” and “us”) respects the privacy of its users (“you”) and has developed this Privacy Policy to demonstrate and show our commitment to protecting your privacy. This Privacy Policy describes the information we collect, how that information may be used, with whom it may be shared, and your choices about such uses and disclosures. We encourage you to read this Privacy Policy carefully when using our application or services or transacting business with us. By using our website, application or other online services (our “Service”), you are accepting the practices described in this Privacy Policy.
  

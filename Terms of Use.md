@@ -43,6 +43,6 @@ If you believe that your work has been copied and posted on the Service in a way
 The Service may contain advertisements and promotions offered by third parties and links to other web sites or resources. We are not responsible for the availability of such external websites or resources.
 
 9. Entire Agreement; Other.
-This Agreement, with the Privacy Policy and any terms disclosed and agreed to by you if you purchase additional features, products or services we offer on the Service, contains the entire agreement between you and Bae regarding the use of the Service. If any provision of this Agreement is held invalid, the remainder of this Agreement shall continue in full force and effect.
-No agency, partnership, joint venture or employment is created as a result of this Agreement and you may not make any representations or bind Bae in any manner.
+This Agreement, with the Privacy Policy and any terms disclosed and agreed to by you if you purchase additional features, products or services we offer on the Service, contains the entire agreement between you and Cater regarding the use of the Service. If any provision of this Agreement is held invalid, the remainder of this Agreement shall continue in full force and effect.
+No agency, partnership, joint venture or employment is created as a result of this Agreement and you may not make any representations or bind Cater in any manner.
 
